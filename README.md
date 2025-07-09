@@ -18,4 +18,4 @@
 
 综上所述，寻找一个真正可靠的“日本AV免费”资源站，必须注重内容的丰富性、播放体验的流畅性以及用户隐私的安全保障。只有不断优化这些方面，才能赢得用户的长久信赖和支持，成为行业中的佼佼者。
 
-<span style="display:none;">[Canonical link]( https://github.com/liqi201215/653138 )</span>
+<span style="display:none;">[Canonical link]( https://github.com/liqi201215/653138 ）</span>
